@@ -38,4 +38,4 @@ Other places you might check out include:
 * Chuckee Cheese Restaurants [Chuckee Cheese Website](https://www.chuckecheese.com/kids-corner/rewards-calendars)
 * Scholastic [Scholastic Website](https://www.scholastic.com/summer/home/)
 
-For the original web page, click here: 
+For the original web page, click here: [Kids earn free books...](https://www.weareteachers.com/10-summer-reading-programs-for-kids/)
