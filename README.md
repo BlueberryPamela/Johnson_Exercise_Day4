@@ -27,3 +27,15 @@ _And it’s free!_ Kids in grades K–8 can search for books, read them offline,
 come back to take a quiz on what they’ve read, and earn prizes for their 
 reading success. Prizes include chocolate bars, temporary tattoos, 
 Highlights magazine, and more.
+
+> Check your local library for more free kids summer reading programs 
+> with activities and incentives for all ages. 
+> Most libraries also have story times and other reading-themed activities.
+
+Other places you might check out include:
+
+* Half-Price Books [Half-Price Website](https://www.halfpricebooks.com/fyb/)
+* Chuckee Cheese Restaurants [Chuckee Cheese Website](https://www.chuckecheese.com/kids-corner/rewards-calendars)
+* Scholastic [Scholastic Website](https://www.scholastic.com/summer/home/)
+
+For the original web page, click here: 
