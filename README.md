@@ -1,4 +1,4 @@
-![Summer Reading](summer_reading.JPG)
+![Summer Reading](summer_reading.jpg)
 
 # Summer Reading Programs
 
